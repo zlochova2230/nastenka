@@ -20,7 +20,7 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 >  pátek   6.3.2026  garáže -2PP
 
-__Prosím, uvolněte garážová místa.__ Čištění bude probíhat od 8 hod ráno. 
+__Prosím, uvolněte garážová místa.__ Čištění bude probíhat od 8 hodin ráno. 
 
 
 ### 2026-02-27:  Otevírání vchodových dveří v -1 patře
