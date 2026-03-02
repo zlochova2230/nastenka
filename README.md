@@ -14,6 +14,15 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-02:  Pravidelné mytí garáží
+
+> čtvrtek 5.3.2026 garáže -1PP
+
+>  pátek   6.3.2026  garáže -2PP
+
+__Prosím, uvolněte garážová místa.__ Čištění bude probíhat od 8 hod ráno. 
+
+
 ### 2026-02-27:  Otevírání vchodových dveří v -1 patře
 
 Zaznamenali jsme, že elektrický zámek náhodně dvěre neodemkne a to jak po přiložení čipu, tak při snaze odemknout dvěře návštěvě pomocí domovního telefonu. Správce byl informován, provedl kontrolu a údržbu zámku (občas tam "zlobí" magnety). V případě, že toto problém nevyřeší, budeme dále řešit opravu.     
