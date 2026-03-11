@@ -14,6 +14,12 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-11:  Oprava kotelny v sousedním domě
+
+Ve dnech __17.-19.3. (út-čt) od 8:00 do 17:00__ bude probíhat výměna ventilů v kotelně v sousedním domě. V našem domě bude docházet ke __kolísání teploty teplé vody__.
+Od 17. hodiny by měla být teplá voda vždy zprovozněna.
+
+
 ### 2026-03-02:  Pravidelné mytí garáží
 
 > čtvrtek 5.3.2026 garáže -1PP
