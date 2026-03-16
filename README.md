@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-16:  Problém se společnou anténou televizního vysílání
+
+Aktuálně v některých bytech z neznámého důvodu __nefunguje TV vysílání přes společnou televizní anténu__. Závada se týká jedné části v domě. Správce byl o problému informován a bude se jej snažit vyřešit ihned zítra ráno po příchodu.   
+
+
 ### 2026-03-11:  Oprava kotelny v sousedním domě
 
 Ve dnech __17.-19.3. (út-čt) od 8:00 do 17:00__ bude probíhat výměna ventilů v kotelně v sousedním domě. V našem domě bude docházet ke __kolísání teploty teplé vody__.
