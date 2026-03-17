@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-17:  Výměna vadného posilovače signálu televizního vysílání
+
+Dnes okolo 17. hodiny proběhne v domě výměna posilovače signálu. Následně by mělo TV vysílání fungovat všem.
+
+
 ### 2026-03-16:  Problém se společnou anténou televizního vysílání
 
 Aktuálně v některých bytech z neznámého důvodu __nefunguje TV vysílání přes společnou televizní anténu__. Závada se týká jedné části v domě. Správce byl o problému informován a bude se jej snažit vyřešit ihned zítra ráno po příchodu.   
