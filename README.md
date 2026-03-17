@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-17:  Nalezené klíče
+
+Ve výtahu byly nalezeny klíče. Kdo je postrádá, nechť kontaktuje správce nebo výbor.
+
+
 ### 2026-03-17:  Výměna vadného posilovače signálu televizního vysílání
 
 Dnes okolo 17. hodiny proběhne v domě výměna posilovače signálu. Následně by mělo TV vysílání fungovat všem.
