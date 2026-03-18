@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-18:  Náhradní termín výměny vodoměru
+
+Dne __7.4. (úterý) od 8 hodin__ bude probíhat výměna ve zbývajících bytech. Správce bude informovat vlastníky dotčených bytů. 
+
+
 ### 2026-03-17:  Nalezené klíče
 
 Ve výtahu byly nalezeny klíče. Kdo je postrádá, nechť kontaktuje správce nebo výbor.
