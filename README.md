@@ -14,6 +14,12 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-19:  Únik vody v garažích -1
+
+Správce byl informován o úniku vody (malá louže) v garažích. Aktuálně situaci řešíme a snažíme se přesně lokalizovat, odkud voda prosakuje. 
+Tímto děkujeme všímavému vlastníkovi a zároveň žádáme, abyste všechny nestandardní události vždy hlasili správci. Včasné prověření a řešení eliminuje případé škody na majetku. 
+ 
+
 ### 2026-03-18:  Náhradní termín výměny vodoměru
 
 Dne __7.4. (úterý) od 8 hodin__ bude probíhat výměna ve zbývajících bytech. Správce bude informovat vlastníky dotčených bytů. 
