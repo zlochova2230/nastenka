@@ -14,6 +14,7 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-03-27:  Závada teplné vody odstraněna (čas 14:21)
 
 ### 2026-03-27:  Neteče teplá voda
 
