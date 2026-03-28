@@ -14,11 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
-### 2026-03-19:  Únik vody v garažích -1
 
-Správce byl informován o úniku vody (malá louže) v garažích. Aktuálně situaci řešíme a snažíme se přesně lokalizovat, odkud voda prosakuje. 
-Tímto děkujeme všímavému vlastníkovi a zároveň žádáme, abyste všechny nestandardní události vždy hlasili správci. Včasné prověření a řešení eliminuje případé škody na majetku. 
- 
+### 2026-03-27:  Neteče teplá voda
+
+V domě od včerejšího večera neteče teplá voda. Technik Veolie přijede zjistit příčinu. 
+
 
 ### 2026-03-18:  Náhradní termín výměny vodoměru
 
