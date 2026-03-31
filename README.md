@@ -14,7 +14,14 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+
+### 2026-03-31: Funkční zkouška požárních systémů 
+
+Ve středu __8.4. mezi 9 - 15 hodinou__ bude v domě probíhat po nezbytně nutnou dobu zkouška požárních systémů (např. zkouška sirén, odstavení výtahu, spuštění požárních rolet v garážích, spuštění požární ventilace, zapnutí nouzového osvětlení).
+
+
 ### 2026-03-27:  Závada teplné vody odstraněna (čas 14:21)
+
 
 ### 2026-03-27:  Neteče teplá voda
 
