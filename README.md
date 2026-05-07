@@ -14,6 +14,14 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-05-07: Svoz bioodpadu rostlinného původu (hnědá popelnice u vchodu do domu)
+
+Výbor zažádal o navýšení počtu nádob na 2 ks a jejich vyvážení každý týden (pátek). Upozorňujeme, že __není možné odkládat biodopad v okolí popelnice__.
+
+Do hnědé nádoby se smí odevzdávat pouze bioodpad rostlinného původu: tráva, listí, plevel, košťály, zbytky ovoce, zeleniny a rostlin, čajové sáčky, kávová sedlina, zemina z květináčů, drny se zeminou, větvičky, štěpka z větví, neznečištěné piliny, hobliny, seno, sláma a kůra.
+
+Do nádoby __je zakázáno odkládat všechny typy sáčků (včetně sáčků biologicky rozložitelných)__, obalové materiály, sklo, živočišné zbytky z kuchyní, mléčné výrobky, tuky, oleje, zvířecí exkrementy, uhynulá zvířata, peří, chlupy, vlasy, znečištěné piliny, hobliny, podestýlky, kamení.
+
 
 ### 2026-03-31: Funkční zkouška požárních systémů 
 
