@@ -14,6 +14,17 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-05-27: BIOODPAD
+
+Dnes byla k domu přistavena 2. popelnice na bioodpad, a tak by vždy měla být dostatečná kapacita.  
+
+__Nevhazujte do popelnice sáčky s bioodpadem!__  Opakovaně se tam objevují a znehodnocují tak obsah celé poplenice. 
+
+Zároveň upozorňujeme, že __skořápky od vajíček také do popelnice nepatří__. Jde o živočišný odpad, který může v kompostárnách způsobovat plísně a hygienické problémy.
+
+__Nevhazujte ani zbytky pečiva__ - lákají škůdce a způsobují plísně.
+
+
 ### 2026-05-07: Svoz bioodpadu rostlinného původu (hnědá popelnice u vchodu do domu)
 
 Výbor zažádal o navýšení počtu nádob na 2 ks a jejich vyvážení každý týden (pátek). Upozorňujeme, že __není možné odkládat biodopad v okolí popelnice__.
