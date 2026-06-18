@@ -14,6 +14,13 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-06-18: POZOR - Stavění hnízd v oknech
+
+Na našem domě si začali ptáci (i vosy) stavět v horních rozích oken/balkónů hnízda. Oblíbená jsou zejména okna, která se nepoužívají,  kde nefouká a nesvítí příliš slunce. 
+Pokud uvidíte stavět tyto hnízda, zabraňte jim v dalším pokračování stavění.
+Stačí uzavřít mikrotenový sáček do rohu okna v místě hnízda a strhnout rozestavenou část. Lze i do rohu nalepit kus alobalu. 
+
+
 ### 2026-05-27: BIOODPAD
 
 Dnes byla k domu přistavena 2. popelnice na bioodpad, a tak by vždy měla být dostatečná kapacita.  
