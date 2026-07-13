@@ -14,6 +14,15 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-07-13: Výzva k dodržování čistoty a pořádku v domě
+
+Upozorňujeme na povinnost dodržovat čistotu a pořádek v domě ve smyslu domovního řádu, zásad slušného chování a ohleduplnosti. 
+
+Společné prostory jsou opakovaně nadměrně znečišťovány, a to zejména protékajícími odpadky a kapajícími donáškami jídel/nákupů.
+
+Žádáme proto všechny obyvatele, aby po sobě případný nepořádek vždy neprodleně uklidili. Pokud tak neučiní, zajistí úklid správce domu na náklady konkrétního vlastníka či jeho nájemce.
+
+
 ### 2026-06-18: POZOR - Stavění hnízd v oknech
 
 Na našem domě si začali ptáci (i vosy) stavět v horních rozích oken/balkónů hnízda. Oblíbená jsou zejména okna, která se nepoužívají,  kde nefouká a nesvítí příliš slunce. 
