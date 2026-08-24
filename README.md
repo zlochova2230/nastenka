@@ -14,6 +14,10 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-08-24: Porucha velkého výtahu
+
+14 hod: Aktuálně nejezdí velký výtah, porucha je nahlášena.
+
 ### 2026-07-13: Výzva k dodržování čistoty a pořádku v domě
 
 Upozorňujeme na povinnost dodržovat čistotu a pořádek v domě ve smyslu domovního řádu, zásad slušného chování a ohleduplnosti. 
