@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-09-01: Probíhá výměna komunikátoru ve výtazích. 
+
+Průběžně je v provovozu vždy jeden výtah. Práce budou pokračovat i během středy 2.9.2026.
+
+
 ### 2026-08-24: Porucha velkého výtahu
 
 14 hod: Aktuálně nejezdí velký výtah, porucha je nahlášena.
