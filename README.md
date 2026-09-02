@@ -14,6 +14,16 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-09-02: Připomínáme pravidelné mytí garáží tento týden
+
+> středa 3.9.2026 garáže -1PP
+
+> čtvrtek 4.9.2026  garáže -2PP
+
+__Prosím, uvolněte garážová místa.__ Čištění bude probíhat od 8 hodin ráno. Během čtvrtku neparkujte svá auta na místech pro hosty, blokujete tak umytí těchto míst.
+
+
+
 ### 2026-09-01: Probíhá výměna komunikátoru ve výtazích. 
 
 Průběžně je v provovozu vždy jeden výtah. Práce budou pokračovat i během středy 2.9.2026.
