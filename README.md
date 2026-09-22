@@ -14,6 +14,11 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+### 2026-09-22: Porucha zámku vstupních dveří ze Zlochovy ulice 
+
+Aktuálně nelze dveře otevřít klíčem. Oprava je v řešení.
+
+
 ### 2026-09-02: Připomínáme pravidelné mytí garáží tento týden
 
 > ČTVRTEK 3.9.2026 garáže -1PP
@@ -21,7 +26,6 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 > PÁTEK 4.9.2026  garáže -2PP
 
 __Prosím, uvolněte garážová místa.__ Čištění bude probíhat od 8 hodin ráno. Během PÁTKU neparkujte svá auta na místech pro hosty, blokujete tak umytí těchto míst.
-
 
 
 ### 2026-09-01: Probíhá výměna komunikátoru ve výtazích. 
