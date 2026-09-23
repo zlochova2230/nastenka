@@ -14,9 +14,13 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 
 ## Aktuality:
 
+
+
 ### 2026-09-22: Porucha zámku vstupních dveří ze Zlochovy ulice 
 
-Aktuálně nelze dveře otevřít klíčem. Oprava je v řešení.
+Aktuálně nelze dveře otevřít klíčem. Oprava je v řešení. 
+
+Update 23.9.2026 - zámek funguje.
 
 
 ### 2026-09-02: Připomínáme pravidelné mytí garáží tento týden
