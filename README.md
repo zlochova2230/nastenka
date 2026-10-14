@@ -15,6 +15,13 @@ __Technické a provozní záležitosti__ v domě kontaktujte správce/domovníka
 ## Aktuality:
 
 
+### 2026-10-14: Vypnutí el. energie
+
+V pondělí  __19.10.2026__ v době cca mezi 10:30 až 12 hodin bude provedena požární zkouška. 
+
+Dojde ke krátkodobému odpojení elektrického proudu do domu - výpadek el. energie.
+
+
 
 ### 2026-09-22: Porucha zámku vstupních dveří ze Zlochovy ulice 
 
